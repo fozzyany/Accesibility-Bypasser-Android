@@ -1,7 +1,7 @@
 # Accesibility-Bypasser-Android
 Accesibility Bypasser  for Android
-password:2024 
-crack by @darknetboys
+password:2024
+
 
 ![image](https://i.imgur.com/HLwfeqo.png)
 
